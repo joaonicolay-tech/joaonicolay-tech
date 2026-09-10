@@ -93,5 +93,5 @@ Busco minha primeira oportunidade profissional ou estágio em Tecnologia da Info
 
 ## 📫 Contato
 
-- 💼 LinkedIn: adicione aqui seu link do LinkedIn
+- 💼 LinkedIn: www.linkedin.com/in/joão-nicolay-125202321
 - 📧 E-mail: joao.vitor.nicolay@gmail.com
